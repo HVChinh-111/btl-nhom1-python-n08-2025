@@ -2,10 +2,9 @@
 
 > **Nhóm 1:**
 > * **Hoàng Văn Chính - B23DCKH011**
-> * **Nguyễn Ngọc Dương - B23DCCN221**
-> * **Dương Thùy An - B21DCCN132**
-> * **Lê Thị Thùy Trang - B23DCKH119**
-> * **Đỗ Minh Hoàng - B23DCCN328**
+> * **Đỗ Vũ Hải Đăng - B23DCKH018**
+> * **Nguyễn Danh Hòa - B23DCCN320**
+> * **Trần Hải Long - B23DCCN510**
 
 ## A. Giới thiệu đề tài
 
